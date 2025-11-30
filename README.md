@@ -1,5 +1,4 @@
 
-<a href="https://1.bp.blogspot.com/-7A4WynwLsMw/XbBpCXG8fHI/AAAAAAAAMt4/u0a1bpLskYgrwGbllhSu2SDj_Mig8SXJQCLcBGAsYHQ/">https://1.bp.blogspot.com/-7A4WynwLsMw/XbBpCXG8fHI/AAAAAAAAMt4/u0a1bpLskYgrwGbllhSu2SDj_Mig8SXJQCLcBGAsYHQ/</a>
 <a href="s1600/2000_600px.gif">s1600/2000_600px.gif</a>
 if
 
